@@ -1,0 +1,1 @@
+## Kofonova mam se spocita jako objem zemekoule umocneno na druhou !
